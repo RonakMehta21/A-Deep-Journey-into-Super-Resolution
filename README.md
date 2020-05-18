@@ -5,4 +5,4 @@ Medium Link: https://medium.com/@ronakmehta21/4b4c2a3dac91?source=friends_link&s
 
 Slide Share Link: https://www.slideshare.net/RonakMehta45/a-deep-journey-into-superresolution
 
-Video Link: 
+Video Link: https://drive.google.com/open?id=1c_RZ7Iupzj-mR2i_8dVXfyJ6bClpjCpM
